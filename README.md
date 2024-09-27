@@ -12,3 +12,14 @@ I am **Leamay G. Astillero** from Ateneo De Naga Junior High School located at P
 - Listening to Music
 - Public Speaking
 - Binge Watching K-dramas
+
+---
+## Favorite Music Artists
+- Daniel Caesar
+- Frank Ocean
+- Laufey
+- NIKI
+- Mrld
+- SZA
+- Weeknd
+- Kali Uchis
